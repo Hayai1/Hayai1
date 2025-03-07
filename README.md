@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hayai1
+- 👋 Hi, I’m Dylan Hough
 - 🌱 I’m currently learning computer science maths and physics at A-Level. About to go university to study a degree in Computer Science
 - 💞️ I’m looking to collaborate on anything I can really.
 - 📫 How to reach me my email is Dylanpjhough@gmail.com
